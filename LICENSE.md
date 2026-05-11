@@ -1,4 +1,4 @@
-
+ClickUp for macOS professional Integration: note encryption & dark mode offers the most advanced ClickUp for macOS integration, with note encryption and dark mode. Ideal for
 
 
 
